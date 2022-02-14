@@ -1,5 +1,5 @@
 # Date-Rush
-![FullGamePlayVideo](https://drive.google.com/file/d/1U_w3JC1opyHsqUrT72uYNtLRZsHkct4E/view?usp=sharing)
+https://drive.google.com/file/d/1U_w3JC1opyHsqUrT72uYNtLRZsHkct4E/view?usp=sharing
 
 
 https://user-images.githubusercontent.com/28115778/153803807-f133d2ae-07ed-4178-b30e-b735eec7a54c.mp4
